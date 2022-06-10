@@ -1,6 +1,5 @@
 ### all-the-things:
 # <span style="color:orange"> **Turmeric & Pepper Drinking Vinegar**</span>
-## *For your health*
 
 1.) Combine 1/2 cup Turmeric with 4 cups Apple Cider Vinegar in a large glass jar with a plastic lid, shake
 <br> <img src="https://user-images.githubusercontent.com/107211660/173132185-e3bd5f77-55e6-473a-9ffc-85f7c02953f0.jpg" width="300"/>
