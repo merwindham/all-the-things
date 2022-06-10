@@ -13,3 +13,4 @@
 <br> 6.) Strain peppercorns out of simple syrup
 <br> 7.) Assemble by combining 1/2 cup turmeric apple cider with 2 tbsps peppercorn simple syrup, top with cold or sparkling water to taste
 <img src="https://user-images.githubusercontent.com/107211660/173134681-94805b8b-5e8f-40e8-b5b4-71a6e4c4d278.jpg" width="300" height="375"/>
+<br> Enjoy!
