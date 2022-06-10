@@ -1,6 +1,5 @@
-### all-the-things:
 # <span style="color:orange"> **Turmeric & Pepper Drinking Vinegar**</span>
-
+### *Anti-inflammatory Energy Boost*
 1.) Combine 1/2 cup Turmeric with 4 cups Apple Cider Vinegar in a large glass jar with a plastic lid, shake
 <br> <img src="https://user-images.githubusercontent.com/107211660/173132185-e3bd5f77-55e6-473a-9ffc-85f7c02953f0.jpg" width="300"/>
 <img src="https://user-images.githubusercontent.com/107211660/173134165-eb592acf-53b1-4417-b940-405110657b00.jpg" width="300"/>
@@ -10,6 +9,6 @@
 <br> 4.) Leave both on counter for 4 days
 <br> 5.) Strain turmeric out of vinegar with a fine mesh bag or china cap strainer
 <br> 6.) Strain peppercorns out of simple syrup
-<br> 7.) Assemble by combining 1/2 cup turmeric apple cider with 2 tbsps peppercorn simple syrup, top with cold or sparkling water to taste
+<br> 7.) Assemble by combining 1/4 cup turmeric apple cider with 2 tbsps peppercorn simple syrup, top with cold or sparkling water to taste
 <img src="https://user-images.githubusercontent.com/107211660/173134681-94805b8b-5e8f-40e8-b5b4-71a6e4c4d278.jpg" width="300" height="375"/>
 <br> Enjoy!
